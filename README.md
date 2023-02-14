@@ -9,8 +9,6 @@
 
 - 📫 How to reach me **sheikh856591@gmail.com**
 
-- ⚡ Fun fact **I am a pianist from 12 years xD.**
-
 - <p align="left"> <img src="https://komarev.com/ghpvc/?username=rhm856591&label=Profile%20views&color=0e75b6&style=flat" alt="cipher-08" /> </p>
 
 <h3 align="left">Connect with me:</h3>
